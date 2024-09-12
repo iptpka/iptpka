@@ -1,6 +1,4 @@
-Finnish IT-student interested in games, art and design. @iptpka on most places online.
-
-[Twitter](https://twitter.com/iptpka)
+Finnish IT-student interested in games, art and design.
 
 [Itch](https://iptpka.itch.io)
 
